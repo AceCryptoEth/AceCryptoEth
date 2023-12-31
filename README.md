@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AceCryptoEth
+- 👀 I’m interested in a potential position in a team to work as project manager in crypto
